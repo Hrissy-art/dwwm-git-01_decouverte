@@ -9,3 +9,7 @@ Le groupe publie son premier album The Eagles en 1972, qui comprend trois single
 
 ## Récompenses 
 Meilleur album
+
+## Tournees 
+
+Un Olympia pour moi toit seul
